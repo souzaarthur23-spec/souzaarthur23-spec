@@ -1,9 +1,9 @@
-1 Gosto de joga bola
+1 Gosto de joga bola 🇧🇷
 
 2 Gosto de viajar e gastar dinheiro
 🪩
 
-3 Gosto de filmes
+3 Gosto de filmes 🌕
 
 💵✈️
 
