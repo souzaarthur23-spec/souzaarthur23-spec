@@ -1,15 +1,15 @@
-Gosto de joga bola
+1 Gosto de joga bola
 
-Gosto de viajar e gastar dinheiro
+2 Gosto de viajar e gastar dinheiro
 🪩
 
-Gosto de filmes
+3 Gosto de filmes
 
 💵✈️
 
-Gosto de assistir animes
+4 Gosto de assistir animes
 
-Entre em contato comigo
+5 Entre em contato comigo
 💼✍🏼
 @Arthur.vncsz
 
