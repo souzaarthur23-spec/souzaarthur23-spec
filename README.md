@@ -1,6 +1,6 @@
 ## fala pessoal 🤙
 
--🇧🇷 Gosto de joga bola 
+- 🇧🇷 Gosto de joga bola 
 
 - 🪩 Gosto de viajar e gastar dinheiro
 
