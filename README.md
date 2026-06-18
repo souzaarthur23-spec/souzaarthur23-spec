@@ -1,16 +1,14 @@
-1 Gosto de joga bola 🇧🇷
+-Gosto de joga bola 🇧🇷
 
-2 Gosto de viajar e gastar dinheiro
+-Gosto de viajar e gastar dinheiro
 🪩
 
-3 Gosto de filmes 🌕
+-Gosto de filmes 🌕
 
-💵✈️
+-Gosto de assistir animes
 
-4 Gosto de assistir animes
-
-5 Entre em contato comigo
-💼✍🏼
+-Entre em contato comigo
+-💼✍🏼
 @Arthur.vncsz
 
 ![](https://media1.tenor.com/m/NeS3m7_6_5QAAAAC/neymar-heart.gif)
