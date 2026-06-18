@@ -5,11 +5,13 @@
 
 -Gosto de filmes 🌕
 
-@Arthur.vncsz
+🥇🌊🐉
 
 -Gosto de assistir animes
 
 -Entre em contato comigo
+
+@Arthur.vncsz
 
 -💼✍🏼
 
